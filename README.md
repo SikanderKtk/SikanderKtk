@@ -35,7 +35,7 @@
 ## 📫 Contact Me
 
 - 📧 Email: sikanderktk222@gmail.com  
-- 🔗 LinkedIn: https://www.linkedin.com/in/sikander-bakht
+- 🔗 LinkedIn: https://www.linkedin.com/in/m-sikander-bakht
 - 
 
 *Thanks for visiting my profile! Check out my projects and feel free to connect!*
